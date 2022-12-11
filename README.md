@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Surekha Chotai
+- 👀 I’m interested in designing and fashion.
+- 🌱 I’m currently studying in M. Com.
+- 📫 You can reach me via [instagram](https://www.instagram.com/surekhachotai/)
